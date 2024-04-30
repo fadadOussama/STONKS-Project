@@ -1,1 +1,1 @@
-# STONKS-Project
+# STONKS Project
